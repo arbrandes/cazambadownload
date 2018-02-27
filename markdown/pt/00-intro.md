@@ -20,6 +20,6 @@
 
 ### Nerd e corredor-de-pé-descalço
 
-### Sócio da ScaleTrend
+### Sócio da [ScaleTrend](https://scaletrend.com)
 
 ### @arbrandes
