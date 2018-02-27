@@ -16,10 +16,10 @@
 # Adolfo Brandes
 
 
-### Programador, instrutor e open-stacker
+### Programador, instrutor e OpenStacker
 
 ### Nerd e corredor-de-pé-descalço
 
-### Sócio na ScaleTrend
+### Sócio da ScaleTrend
 
 ### @arbrandes
