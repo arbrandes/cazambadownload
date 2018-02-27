@@ -15,6 +15,7 @@ senso estético.
 Em 2003, envia um Mandado pra empresa toda.  Sempre faz isso, mas esse fez os
 outros parecerem pedidos educados.
 
+
 # TODAS AS EQUIPES DEVEM
 
 
